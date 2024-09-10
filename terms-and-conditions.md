@@ -1,0 +1,1 @@
+Terms and Conditions of Valor Of Man

@@ -1,0 +1,1 @@
+Privacy Policy of Valor Of Man
